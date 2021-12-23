@@ -1,3 +1,3 @@
-👋🏻 Oi, eu sou o Crono・Hi, I'm Crono・ハロー、クロノです。📠 Contato・Contact: @epochvoyager:matrix.org
+Eu me chamo de Crono・I call myself Crono・クロノと自称する。📠 Contato・Contact: @epochvoyager:matrix.org
 
 
